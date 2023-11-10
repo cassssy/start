@@ -1,1 +1,1 @@
-# start I have no idea what I am doing lmao
+# Hi, I have no idea what I am doing lmao
